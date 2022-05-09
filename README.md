@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @kim-hong-gye
+- 👀 I’m interested in discord
+- 🌱 I’m currently learning discord
+- 💞️ I’m looking to collaborate on discord
+- 📫 How to reach me discord kim-hong-gye#6749
